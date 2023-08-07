@@ -12,3 +12,4 @@
    - [Dare to say "No" | William Clark | TEDxUND](https://www.youtube.com/watch?v=oocDt8ckjLQ)
    - [Start Putting Yourself First: Tools to Say No Without Guilt or Drama | The Mel Robbins Podcast](https://www.youtube.com/watch?v=UVPhdG_w3u0)
    - [How to Say No Politely](https://www.youtube.com/watch?v=BHmNerUQU5w)
+   - [Learn The Gentle Art of Saying ‘No’ without being rude – Improve Your Communication Skills](https://www.youtube.com/watch?v=vgkiVSlFCXs)
